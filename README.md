@@ -1,1 +1,1 @@
-# Bangkoktrip2026TheWeeknd
+# bangkok-trip
